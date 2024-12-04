@@ -38,7 +38,7 @@
 ---
 
 ## 📬 Connect with Me  
-- **LinkedIn**: [linkedin.com/in/mulugeta-girmay](https://www.linkedin.com/in/meron-goitom-18a47a2b1/)  
+- **LinkedIn**: [linkedin.com/in/meron-goitom](https://www.linkedin.com/in/meron-goitom-18a47a2b1/)  
 - **Email**: [meron.tgoitom@gmail.com](mailto:meron.tgoitom@gmail.com)  
 
 ---
